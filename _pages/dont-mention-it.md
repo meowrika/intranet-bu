@@ -31,6 +31,11 @@ aggregator_column_3:
 ---
 <img tabindex="-1" id="longdesc-return-4136" longdesc="http://intranet2.psp.wa.gov?longdesc=4136&#038;referrer=4178" src="http://intranet2.psp.wa.gov/wp-content/uploads/2017/01/p8kKA.gif" alt="Rob Lowe as Chris Traeger saying &#039;Great Job!&#039;" width="500" height="280" class="aligncenter size-full wp-image-4136" />
 
+<strong>THANK YOU, ALL PSPers!</strong>
+I've been here a little over a year now and want to thank you for making the year interesting, memorable and rewarding. I have learned so much and stand in awe of your dedication and expertise. I am happy to be working here with you, in this lovely setting, and for a very worthwhile mission. Thanks again, and have a super summer.
+<em>-<a href="http://intranet2.psp.wa.gov/staff/karinberkholtz/">Karin</a></em>
+<em>June 2, 2017</em>
+
 <strong>Thank you, PSP STAFF!</strong>
 I would like to thank staff for the wonderful Secretary Day gift card. I will enjoy it with my husband for a Sunday brunch. 
 <em>-<a href="http://intranet2.psp.wa.gov/staff/debbielewandowsky/">Debbie</a></em>

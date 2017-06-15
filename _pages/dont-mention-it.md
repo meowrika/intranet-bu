@@ -31,8 +31,13 @@ aggregator_column_3:
 ---
 <img tabindex="-1" id="longdesc-return-4136" longdesc="http://intranet2.psp.wa.gov?longdesc=4136&#038;referrer=4178" src="http://intranet2.psp.wa.gov/wp-content/uploads/2017/01/p8kKA.gif" alt="Rob Lowe as Chris Traeger saying &#039;Great Job!&#039;" width="500" height="280" class="aligncenter size-full wp-image-4136" />
 
-<strong>THANK YOU, Dominique and Team!</strong>
-Big thanks to (in order of appearance) Sheida, Peter, Heather, Tristan, Dominique, Cathy, Jeff, Scott, and Kari for their excellent work briefing our newest Leadership Council member Dennis McLerran! Thanks also to the admin team for helping set up and clean up! And huge thanks, as always, to Dominique for organizing everything, producing a robust binder of materials for Dennis, and making sure we had light refreshments for him. Dennis remarked that the orientation was very well organized and informative. Go team!
+<strong>THANK YOU, <a href="http://intranet2.psp.wa.gov/staff/cathycochrane/">Cathy</a>, <a href="http://intranet2.psp.wa.gov/staff/stephaniesuter/">Stephanie</a>, <a href="http://intranet2.psp.wa.gov/staff/nathaliehamel/">Nathalie</a>, and <a href="http://intranet2.psp.wa.gov/staff/alexandradoty/">Alexandra</a>!</strong>
+Thank you for your excellent support under a short timeline to be sure I had something intelligent to say at the Orcas & Rain Gardens event yesterday! It is wonderful to have such support and I am very appreciative.
+<em>-<a href="http://intranet2.psp.wa.gov/staff/laurablackmore/">Laura</a></em>
+<em>June 14, 2017</em>
+
+<strong>THANK YOU, <a href="http://intranet2.psp.wa.gov/staff/dominiquehampton/">Dominique</a> and Team!</strong>
+Big thanks to (in order of appearance) <a href="http://intranet2.psp.wa.gov/staff/sheidasahandy/">Sheida</a>, <a href="http://intranet2.psp.wa.gov/staff/peterbest/">Peter</a>, <a href="http://intranet2.psp.wa.gov/staff/heatherbenson/">Heather</a>, <a href="http://intranet2.psp.wa.gov/staff/tristanpetercontesse/">Tristan</a>, Dominique, <a href="http://intranet2.psp.wa.gov/staff/cathycochrane/">Cathy</a>, <a href="http://intranet2.psp.wa.gov/staff/jeffparsons">Jeff</a>, <a href="http://intranet2.psp.wa.gov/staff/scottredman/">Scott</a>, and <a href="http://intranet2.psp.wa.gov/staff/karistiles/">Kari</a> for their excellent work briefing our newest Leadership Council member Dennis McLerran! Thanks also to the admin team for helping set up and clean up! And huge thanks, as always, to Dominique for organizing everything, producing a robust binder of materials for Dennis, and making sure we had light refreshments for him. Dennis remarked that the orientation was very well organized and informative. Go team!
 <em>-<a href="http://intranet2.psp.wa.gov/staff/laurablackmore/">Laura</a></em>
 <em>June 7, 2017</em>
 
@@ -52,10 +57,10 @@ Becky is going above and beyond and really helping sort through our budget situa
 
 <strong>Thank you, every single one of you!</strong>
 It's been 1 month already! I want to send a BIG thank you to Dominique, Debbie and Charisse for helping me figure everything out and always being available to answer questions or offer support! I'm really enjoying being a part of the admin team! I also want to thank Kelly, who is so busy, but will stop what she's doing to help me. I see you do that all the time for everyone and I think you are awesome! And...thanks to everyone here for making me feel very welcome and taking the time to teach me or explain things to me. I am really proud to be a part of the PSP!  
-<em>-<a href="http://intranet2.psp.wa.gov/staff/breyannademarco/">Breyanna</a></em>
+<em>-Breyanna</em>
 <em>March 30, 2017</em>
 
-<strong>Thank you, <a href="http://intranet2.psp.wa.gov/staff/breyannademarco/">Breyanna</a></strong>
+<strong>Thank you, Breyanna</strong>
 Thank you for jumping right in and embracing all the information overload. You are doing great. Keep up the good work.
 <em>March 29, 2017</em>  
 

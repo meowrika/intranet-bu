@@ -2,34 +2,18 @@
 ID: 4178
 post_title: '<strike>Don&#8217;t</strike> Mention It!'
 author: Erika Lari
-post_date: 2017-02-01 14:02:57
 post_excerpt: ""
 layout: page
 permalink: >
   http://intranet2.psp.wa.gov/dont-mention-it/
 published: true
-document_attachments:
-  - ""
-related:
-  - ""
-ht_sidebar_content:
-  - '[gravityform id="45" title="true" description="true"]'
-keywords:
-  - ""
-ht_timeline_items:
-  - ""
-news_offset:
-  - ""
-aggregator_column_1:
-  - ""
-aggregator_column_hero:
-  - ""
-aggregator_column_2:
-  - ""
-aggregator_column_3:
-  - ""
+post_date: 2017-02-01 14:02:57
 ---
 <img tabindex="-1" id="longdesc-return-4136" longdesc="http://intranet2.psp.wa.gov?longdesc=4136&#038;referrer=4178" src="http://intranet2.psp.wa.gov/wp-content/uploads/2017/01/p8kKA.gif" alt="Rob Lowe as Chris Traeger saying &#039;Great Job!&#039;" width="500" height="280" class="aligncenter size-full wp-image-4136" />
+
+<strong>THANK YOU, <a href="http://intranet2.psp.wa.gov/staff/erikalari/">Erika</a></strong>
+You have been a colorful, funny talented part of the team here for as long as I have been here - thank you! 
+<em>June 26, 2017</em>
 
 <strong>THANK YOU, <a href="http://intranet2.psp.wa.gov/staff/cathycochrane/">Cathy</a>, <a href="http://intranet2.psp.wa.gov/staff/stephaniesuter/">Stephanie</a>, <a href="http://intranet2.psp.wa.gov/staff/nathaliehamel/">Nathalie</a>, and <a href="http://intranet2.psp.wa.gov/staff/alexandradoty/">Alexandra</a>!</strong>
 Thank you for your excellent support under a short timeline to be sure I had something intelligent to say at the Orcas & Rain Gardens event yesterday! It is wonderful to have such support and I am very appreciative.

@@ -11,7 +11,12 @@ post_date: 2017-02-01 14:02:57
 ---
 <img tabindex="-1" id="longdesc-return-4136" longdesc="http://intranet2.psp.wa.gov?longdesc=4136&#038;referrer=4178" src="http://intranet2.psp.wa.gov/wp-content/uploads/2017/01/p8kKA.gif" alt="Rob Lowe as Chris Traeger saying &#039;Great Job!&#039;" width="500" height="280" class="aligncenter size-full wp-image-4136" />
 
-<strong>THANK YOU, <a href="http://intranet2.psp.wa.gov/staff/erikalari/">Erika</a></strong>
+<strong>THANK YOU, SOS Team!</strong>
+To everyone who kicked it into high gear to get the SOS draft out on deadline - WELL DONE and NICE JOB! 
+<em>-<a href="http://intranet2.psp.wa.gov/staff/sheidasahandy/">Sheida</a></em>
+<em>July 5, 2017</em>
+
+<strong>THANK YOU, <a href="http://intranet2.psp.wa.gov/staff/erikalari/">Erika</a>!</strong>
 You have been a colorful, funny talented part of the team here for as long as I have been here - thank you! 
 <em>June 26, 2017</em>
 
